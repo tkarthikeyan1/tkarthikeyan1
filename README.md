@@ -1,7 +1,7 @@
 - 👋 Hi, I’m karthikeyan
 - 👀 I’m interested in learning the new things
 - 🌱 I’m currently studying i National Institute of Technolgy Andhra Pradesh(NIT AP)
-- 📫 You ca reach me on the instagram id=mr_karthikeyan
+
 - ⚡ Must known fact:Explore every thing in the life , don't stuck in the fixed position..... 
 
 <!---
